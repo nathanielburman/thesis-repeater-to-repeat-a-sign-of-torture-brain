@@ -6,7 +6,7 @@
 4. repeating becomes painful at a point for most and repeating will taper off for most
 5. a tortured brain may be able to repeat more with less pain due to the signifigance of the pain already in state considering the difference.
 
-A sign of torture may be the repeator-brain, where a person or conciousness will be able to repeat a phrase or word moer times than a 'normal' person can without causing pain to themselves.
+A sign of torture may be the repeator-brain, where a person or conciousness will be able to repeat a phrase or word more times than a 'normal' person can without causing pain to themselves.
 
 Repeating a word or phrase can derive new meaning from it. I have repeated phrases for days to weeks, praying, spelling, cursing, searching, learning, listening.
 
